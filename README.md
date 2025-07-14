@@ -2,6 +2,9 @@
 
 Anusri Nagarajan
 
+Izabella Doser
+
 Vaishnavi Panchal
 
 Ena Macahiya
+
